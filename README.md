@@ -39,7 +39,7 @@
 
 ### 📫 Onde me encontrar
 
-📩 Email: **carlos.soares11@fatec.sp.gov.br**  
+📩 Email: **carlos07.ti@hotmail.com**  
 💼 LinkedIn: [Meu linkedin](www.linkedin.com/in/carlos-alexandre-soares-393987253)  
 🌐 Portfólio: [Meu portifolio](https://carlosalexandresoares.github.io/portifolio/)
 
